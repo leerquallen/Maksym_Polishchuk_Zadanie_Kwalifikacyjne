@@ -1,0 +1,1 @@
+# Maksym_Polishchuk_Zadanie_Kwalifikacyjne
